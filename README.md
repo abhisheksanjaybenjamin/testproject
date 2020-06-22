@@ -1,2 +1,2 @@
 # testproject
-testing projectsno need to pay dolla dolla for hosting and domains
+testing projects no need to pay dolla dolla for hosting and domains
